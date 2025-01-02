@@ -1,4 +1,4 @@
-# Bianca-Cordeiro
+# Bianca Cordeiro
 Olá , Sou Bianca Larisse Cordeiro de Moura!
 
 Seja muito Bem vindo ao meu perfil do GitHub! 
